@@ -20,6 +20,8 @@ Record.json,Sales.json and ETG_Assignment1.ipynb file.
 ### Who am I?
 My name is Satyam Kumar Tiwari currently Iam pursuing B-Tech in Computer Science at Galgotias University Greater Noida UP.
 ### Other useful Links:
+facebook- www.facebook.com/satyam.tiwari.73550
+Instagram- https://www.instagram.com/tiwarisatyam355/
 
     
   
