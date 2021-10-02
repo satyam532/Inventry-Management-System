@@ -22,7 +22,7 @@ My name is Satyam Kumar Tiwari currently Iam pursuing B-Tech in Computer Science
 ### Other useful Links:
 facebook- www.facebook.com/satyam.tiwari.73550
 Instagram- https://www.instagram.com/tiwarisatyam355/
-https://www.linkedin.com/in/satyam-kumar-tiwari-a23664193
+Linkedin- https://www.linkedin.com/in/satyam-kumar-tiwari-a23664193
 
     
   
